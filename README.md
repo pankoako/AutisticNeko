@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AutisticNeko and i don't do anything
+- 👋 Hi, I’m @AutisticNeko
 - 👀 I’m interested in art,Pokemon, and other video games.
 - 🌱 I’m currently learning Japanese.
 
